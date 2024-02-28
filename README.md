@@ -1,1 +1,1 @@
-# studying--programming
+Ex 2
